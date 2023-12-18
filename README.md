@@ -8,4 +8,4 @@ After that experience, I wanted to work in something that was close to my heart.
 
 That's why, I started a training at Wild Code School to become a Web and Mobile Web developer.
 
-You can discorver more about me in my portfolio, here the link : 
+You can discover more about myself in my portfolio, here the following link : 

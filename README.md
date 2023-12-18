@@ -1,4 +1,3 @@
-Aknolagon/README.md
 Hello everyone who is visiting my profile !!
 
 My name is Prasanna KALKI. I'm a Web and Web Mobile Developer 😎
